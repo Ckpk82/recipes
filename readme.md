@@ -1,4 +1,5 @@
 # Recipes
+Justin and Traci, i feel weird writing a message to you by pretending to write code on github but i didn't know another way to get a hold of you. Justin, this is your cousin Chris Pohlson. i hope this message finds you both well. I was curious if you would want to reconnect in the hopes we could discuss, learn and heal from eachother's experiences growing up with a narcistic parent. If that interests you, call or text me at 515-339-5874. Or you can email me ckpohlson@gmail.com or find me on social media. I don't want to bother you or cause any kind of emotional distress so if you do not respond, i may try again in 6 mo to a year. If you tell me you're not interested, i will certainly respect that and will not make another attempt to contact you. Also i would like to assure you that our contact would be confidential.. 
 
 A simple, plaintext recipe database
 
